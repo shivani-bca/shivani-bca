@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Shivani!  
+ihuih# 👋 Hi, I'm Shivani!  
 🚀 **Aspiring Software Engineer | MERN Stack | AI & Data Analytics Enthusiast**  
 
 ### 🔥 About Me  
